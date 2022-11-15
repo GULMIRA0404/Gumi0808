@@ -1,0 +1,2 @@
+# Gumi0808
+STUDENT SDUUU
